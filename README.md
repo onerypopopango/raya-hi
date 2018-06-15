@@ -1,5 +1,4 @@
-# raya-hi.github.io
-
+# raya-hi
 Just an idle thought that came to mind when my better half asked
 if it would be possible to make a celebratory pix for raya to
 send to friends. As I didn't have enough time to make a decent one,
