@@ -14,3 +14,7 @@ is in the credits in the footer.
 Feel free to share this hastily whipped up site. Thank you :-
 
 ~Onery @ AzureUmbra
+
+edit: link to site below
+
+https://onerypopopango.github.io/raya-hi/
